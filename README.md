@@ -85,6 +85,7 @@ OUTPUT WAVEFORM
 TABULATION
 
 
+![WhatsApp Image 2025-09-25 at 15 02 24_d7d46a60](https://github.com/user-attachments/assets/af81ab12-38ca-4f6e-8520-4daaf98257e5)
 
 
 
